@@ -1,0 +1,118 @@
+# 他的身高从172cm“缩水”至152cm，究竟是什么怪病让他如此困扰？
+
+> 更新时间：2026-09-16 (UTC+8)
+
+点击上方“广西壮族自治区人民医院”可以关注哦！　　“这十余年来，我们全家人的梦想就是能有一家医院可以有效治疗我的顽疾，没想到现在终于实现了，而且还是我们广西自己的医院！”。备受疾病折磨的患者陆某和他家人苦苦等了十余年的这个梦想，近日（9月6日）在我院普通介入科医务人员的帮助下实现了。经CT引导下骨穿刺活检证实陆某患的是肿瘤性骨软化症，最后经微波消融把肿瘤破坏了。经查阅相关资料，利用微波消融治疗骨肿瘤性骨软化症目前全世界文献上还未见报道。2004年　　陆某出现左足跟部疼痛，后来逐渐出现双下肢、双髋、腰背部、肋骨、胸骨及双上肢等部位疼痛，伴双下肢乏力。随着时间的延长，全身骨痛及肢体乏力症状进行性加重，让他寸步难行，甚至低矮的台阶都无法抬腿跨过去，甚至一抬腿便会摔倒。2007年　　陆某开始出现胸腰椎后凸、胸骨塌陷、双膝外翻等骨骼畸形，只能在家长期卧床休息。2009年　　陆某病情继续加重，就连进食、穿衣、解大小便、翻身这样最简单的事情他都无法独立完成，还需要年迈的父母来照顾。因为严重的骨痛，在家人照顾他时无意中触碰到他的骨头，他都会觉得疼痛难忍；因为重度骨质疏松，曾经因为家人帮他翻身时出现过肋骨骨折。“我们家住南宁市西乡塘，但连送到医院都存在很大风险。”患者的爱人说道。2010年7月　　陆某被送到我院内分泌代谢科住院，诊断为“低磷性骨软化症”，高度怀疑是继发性，但原发病灶到底在哪里，多次行CT、MRI、PET/CT检查都无法找到这个“隐身”的病魔。患者只能长期服用中性磷酸盐对症治疗延缓骨质疏松，然而他的身高还是从正常时的172cm“缩水”至152cm。　　**10年来的患病经历已让陆某陷入绝望之中，隐藏在身体里却又看不见摸不着的病魔反复折磨着他，已多次产生轻生的念头。**　　直至今年7月份，陆某及其爱人冒着随时中途下车送医院抢救的风险，“坐”高铁一路躺到北京求医，住进了某著名医院的内分泌科病房。在那里接受了全身奥曲肽显像扫描，显示右股骨小转子生长抑素受体高表达病变，考虑为导致低磷性骨软化症的肿瘤病灶。隐匿在患者体内12年的病魔终于露出了蛛丝马迹。　　但是，这不到2cm的病灶该怎么处理，却难倒了这所全国权威医院。经该院麻醉科、骨科及ICU多学科会诊，评估因患者全身情况差、体位难以配合，手术及麻醉风险大，术后存在气管插管拔除困难、重症肺炎的风险，暂时不宜选择外科手术切除，建议先调理好身体，待身体状态改善后再择期做外科手术。陆某刚刚对诊断治疗建立起的一线希望再次破灭。他带着沮丧、绝望的心情返回了南宁。 既然找到了可疑病灶但无法外科手术切除，那有没有其他办法呢？“可以找我院普通介入科余雷主任采用介入方法试一试。”内分泌代谢科颜晓东主任
+　　余雷主任在得知患者的病情后立即给予答复：“我们有办法！”。陆某及其爱人又抱着一线希望住进了我院普通介入科病房。余雷主任带领普通介入团队全面评估患者的病情及分析各种影像学检查后，决定采用“局麻下CT引导经皮穿刺活检+微波消融”方案。手术中，患者被医护人员小心翼翼地护送到CT检查床上，光是帮其摆左侧卧位就花了将近半小时。准备就绪后，CT扫描定位穿刺的角度及深度，余雷主任使用专用骨穿针一针即穿中右股骨小转子病灶中心，旋转取出病变骨质标本送病理学检查。退出骨穿针后换用微波消融针，再次精准地穿中该病灶，仅仅使用10分钟就将病灶高温消融。手术顺利结束，除了手术部位的轻度短暂疼痛，患者没有出现任何出血、骨折或神经损伤等并发症。
+
+　　术后第3天，陆某病理诊断为“磷酸盐尿性间叶性肿瘤”，属于良性肿瘤，血磷也从术前0.30上升至0.57，术后第5天血磷进一步上升至0.74，术后2周时复查血磷上升至1.09mmol/L，恢复到正常范围！术后一系列的结果显示，这不到2cm的肿瘤就是导致患者十余年骨软化症的真正元凶。仅仅采用局麻无切口穿刺，就找到了隐身的病魔；仅仅10分钟的微波消融，就将隐匿十余年的病魔消灭殆尽。微创、精准的介入技术，使得陆某在承受更小风险的同时取得了最大的获益。“连北京权威医院都无法操作的手术，竟然在我们广西区人民医院做成了！我们全家十余年来最大的梦想终于实现了！”陆某和其爱人都觉得不可思议。术后7天，陆某没有出现任何并发症，顺利出院了。陆某所患的疾病应称之为“肿瘤性骨软化症”，是由肿瘤引起肾脏排磷增加造成的获得性低血磷性骨软化症，以低血磷、高尿磷、骨骼矿化不良、骨软化等为主要特征，至今全世界报道仅300余例。该院多年来只遇到过2例，其中只有陆某是骨肿瘤引起。该病起病隐匿，肿瘤病灶难以寻觅，极易误诊漏诊，从开始出现症状到确诊时间可为1.5-28年。一般来说，手术完整切除肿瘤可治愈本病，但对于很多该类患者来说，因确诊时间长，到有手术机会之时，已出现了严重骨骼畸形及其他严重并发症，外科手术及麻醉风险随之增加，甚至像陆某一样无法耐受外科手术。而介入技术可以以最小的创伤、最低的风险，在影像的引导下让穿刺针直击肿瘤组织将其灭活。达到“精确打击”目的，又最大程度避免副损伤。因此介入技术中的微波消融是治疗骨肿瘤性骨软化症的一种微创有效的新技术，值得推广。余雷主任
+**据余雷主任介绍：** 
+　　
+
+　　陆某所患的疾病应称之为“肿瘤性骨软化症”，是由肿瘤引起肾脏排磷增加造成的获得性低血磷性骨软化症，以低血磷、高尿磷、骨骼矿化不良、骨软化等为主要特征，至今全世界报道仅300余例。我院多年来只遇到过2例，其中只有陆某是骨肿瘤引起。该病起病隐匿，肿瘤病灶难以寻觅，极易误诊漏诊，从开始出现症状到确诊时间可为1.5-28年。
+
+　　一般来说，手术完整切除肿瘤可治愈本病，但对于很多该类患者来说，因确诊时间长，到有手术机会之时，已出现了严重骨骼畸形及其他严重并发症，外科手术及麻醉风险随之增加，甚至像陆某一样无法耐受外科手术。而介入技术可以以最小的创伤、最低的风险，在影像的引导下让穿刺针直击肿瘤组织将其灭活。达到“精确打击”目的，又最大程度避免副损伤。因此介入技术中的微波消融是治疗骨肿瘤性骨软化症的一种微创有效的新技术，值得推广。
+**我院服务号具备的功能****1****可预约挂号****２****可缴门诊费用****３****可补缴住院押金****４****可智能导诊****５****可查询检查结果及费用****长按二维码可关注我院服务号****长按二维码可关注我院订阅号****文稿来源：广西壮族自治区人民医院****文稿编发：宣传科****觉得不错，请点赞或转发**
+
+## 相关阅读
+
+- [带娃看病必备技能！三分钟教你读懂血常规报告上的“红白板”密码](https://github.com/na1l60kg9l/family-parenting-notes/blob/main/20260916zqex/ecquyfgwmc.md)
+- [生殖免疫科：提供系统解决方案，精准破解妊娠难题](https://github.com/km2vgbd5nt/mother-baby-diary/blob/main/20260916dceh/sfffujxwub.md)
+- [卵子排出后能存活多久？](https://github.com/z5f5r601d6/mother-baby-diary/blob/main/20260915qpfh/zorxifezng.md)
+- [原创孕妇吃冰淇淋，胎儿在肚子里“手舞足蹈”，孕妈能不能吃冰淇淋？](https://github.com/exfk8bm0mc/toddler-food-ideas/blob/main/20260911hglv/zyyawijngf.md)
+- [孕妇咳嗽厉害怎么办最有效呢](https://github.com/dlljzkwmj4/parenting-daily-tips/blob/main/20260915bkja/fgxywygdjb.md)
+- [【名医医讯】云南省妇幼保健院何平名医门诊医讯](https://github.com/cfo5j5htmg/pregnancy-care-essays/blob/main/20260916oqsd/ocxzogcdnm.md)
+- [从河南去美国做试管费用明细表出炉(去美国做试管婴儿要赴美多长时间)](https://github.com/exfk8bm0mc/pregnancy-nutrition-notes/blob/main/20260911qyag/wcpknwaydj.md)
+- [产前超声，把好出生缺陷二级预防关口](https://github.com/tp7gz3q4gt/pregnancy-care-hub/blob/main/20260916rgda/vmsoqkyjvf.md)
+- [“男性生育能力呈悬崖式下降”引起关注，赴美试管帮助完成“爸爸”行业！](https://github.com/n9ugyolxwj/family-health-notes/blob/main/20260910lytu/bitqcvdqdn.md)
+- [药流后宫颈管粘连症状表现](https://github.com/nih9jzz6yi/mommy-baby-notes/blob/main/20260915pait/mbrzwwhkkb.md)
+- [学术活动预告 ｜ 威科“医学科研设计、写作与投稿”全国巡讲——山东大学齐鲁医院专场](https://github.com/h538vradpp/child-care-essays/blob/main/20260916wrnt/husdyktbxj.md)
+- [招募卵巢低反应患者](https://github.com/q0w8rdniez/kids-health-guide/blob/main/20260916jyeu/upaymihalf.md)
+- [同心同行聚合力 医馆携手谱新篇——莆田学院附属医院与莆田学院图书馆开展共建活动](https://github.com/b38lymdomu/mom-baby-stories/blob/main/20260911qdav/vimdqpshse.md)
+- [日间手术  为老百姓带来福利  中国日间手术联盟调研组对我院日间手术进行调研](https://github.com/dvr9hxdoa2/baby-care-journal/blob/main/20260916gnaa/oofvgjkqkl.md)
+- [吞精会怀孕吗](https://github.com/helxwyn5td/baby-care-essays/blob/main/20260915cfxs/fnuwybamok.md)
+- [宝宝打疫苗时间表介绍](https://github.com/fwqeo9xwuk/toddler-activity-ideas/blob/main/20260915fjgh/crliwxkabq.md)
+- [当备孕遇上了输卵管炎症，该怎么办才能好孕？](https://github.com/j4q35mmgu2/pregnancy-care-hub/blob/main/20260910jzbw/seyrrggezy.md)
+- [人工流产需注意的8个问题](https://github.com/achf8mo3od/baby-food-notes/blob/main/20260915miyy/dynbbvdovk.md)
+- [胃切除的手术费一般多少钱](https://github.com/w4nejibsgs/family-health-notes/blob/main/20260915ukmu/jgqsycfdhz.md)
+- [四川大学华西第二医院天府医院(四川省儿童医院)儿童血液肿瘤科正式开科！](https://github.com/s4vv96li6k/parenting-daily-tips/blob/main/20260916zaod/bekzdauqmv.md)
+- [徐州妇幼试管的*率高吗 徐州哪家医院试管*率高](https://github.com/nnhgjqxjg6/family-life-notes/blob/main/20260911trpz/chdvrcrclb.md)
+- [怎样才能治好霉菌阴道炎](https://github.com/exfk8bm0mc/child-care-diary/blob/main/20260915ajfc/vjuriieief.md)
+- [去廉江市看卵巢早衰治疗医院哪家好？试管医院情况清清楚楚！](https://github.com/l0mxvbb0j0/mommy-baby-notes/blob/main/20260910hmso/zfydkirtdk.md)
+- [去美国加州试管婴儿的详细流程是怎样的？费用包含哪些！](https://github.com/ij0s3j0vss/child-care-essays/blob/main/20260910witk/bjjbkrbwtf.md)
+- [怀孕6个月可以去乐清市人民医院做b超检查胎儿助孕吗？](https://github.com/j593cre19a/pregnancy-care-hub/blob/main/20260910qbqm/ztefxpykbf.md)
+- [宫颈癌一般哪里疼会痒吗](https://github.com/bnab3b3j5y/infant-health-guide/blob/main/20260915nilt/jhqbwobmkb.md)
+- [用排卵试纸可以测出来怀孕吗](https://github.com/jksx3jm2r0/pregnancy-care-hub/blob/main/20260915pbzb/kfyefafdnx.md)
+- [家里有乙肝病人,宝宝要注意什么](https://github.com/o8mgbpui8y/parenting-daily-tips/blob/main/20260915bdqq/jhiwppsrgl.md)
+- [突然不孕吐了是胎停吗](https://github.com/bx6ti255zt/baby-care-essays/blob/main/20260915inmq/lrpzyoqbdz.md)
+- [宫腔镜手术后多久能吃海鲜](https://github.com/nc9p0vaxpx/newborn-parenting-log/blob/main/20260911asjv/obqyraokoa.md)
+- [雌激素过量会引起卵泡不破吗](https://github.com/fmen2egmz8/newborn-parenting-log/blob/main/20260911hteq/lubpnsanhg.md)
+- [单身去常州市妇幼保健院做试管助孕流程指示？成功率费用全部包含](https://github.com/syevx32qjy/family-health-notes/blob/main/20260910tmal/ufgmadznhi.md)
+- [春季是“长高黄金期”，这样做帮助孩子科学长高｜科普时间](https://github.com/syevx32qjy/parenting-daily-tips/blob/main/20260916rshq/arqhuhfvga.md)
+- [「专家坐诊」北京专家坐诊乌海市妇幼保健院](https://github.com/oizha1rquq/child-care-diary/blob/main/20260916pmwd/nwoppntebs.md)
+- [【媒体贵医•动静】一大批医疗专家坐诊中山一院贵州医院，坐诊表速藏！](https://github.com/cfo5j5htmg/pregnancy-care-essays/blob/main/20260911caxo/uqmmhzyolw.md)
+- [子宫息肉怎么治疗最佳](https://github.com/w15ezo8wwd/newborn-care-tips/blob/main/20260915cgxo/drjftcrzkl.md)
+- [第三代试管婴儿养囊后送去活检会伤害囊胚吗？](https://github.com/j593cre19a/family-health-notes/blob/main/20260915xgsz/xmiuzurrlw.md)
+- [准妈妈看过来，这些运动有利于自然分娩](https://github.com/oizha1rquq/maternal-health-hub/blob/main/20260911tsvy/nvtkshptko.md)
+- [代试管婴儿被中介坑惨的经历，姐妹们千万要小心这些套路！](https://github.com/helxwyn5td/mom-life-notes/blob/main/20260915txeg/cerjqeydjn.md)
+- [孕妇吃爱乐维大便黑色是怎么回事](https://github.com/cfo5j5htmg/baby-sleep-tips/blob/main/20260915yupk/zbfrhvfuip.md)
+
+## 推荐站点
+
+- [大连试管婴儿流程：做试管婴儿有什么样的流程？](https://www.sandwnot.com/126370034140.html)
+- [2026年马来西亚十大代生双胞胎公司医院可以三代代生双胞胎公司吗(马来西亚代生双胞胎公司移植成功案例)](https://www.xmxinyhwzhs.cn/33163245251595.html)
+- [长效or短效长方案到底是个啥？代生中心地址促排前赶紧来看看](https://www.sjzgwfjwzhs.cn/24921799354610.html)
+- [解冻复苏优质胚胎做三代移植多久会妊娠？](https://www.sdjiaxin.net/544.html)
+- [宁波能做私人供卵哪里最多的私立医院,私人供卵哪里最多成功率前十医院名单](https://www.anyhdlyb.cn/1685688093073.html)
+- [山东正规三代试管婴儿机构成功率](https://www.cd-hssf.com/139041960287.html)
+- [2026年合肥供卵试管医院排名及三代生男孩流程详解](https://www.chdhaishendq.cn/311244558284.html)
+- [广州多囊卵巢综合症治疗怀孕用药指南](https://www.sdhuabenhuanbao.cn/guoneigongluanpinzhi/163.html)
+- [借卵需要流程：O型血做试管婴儿可以避免abo溶血吗？](https://www.gyzhixiao.cn/451.html)
+- [助孕试管电话-青岛试管婴儿的具体费用，各项花费清单一览](https://www.skiguo.cn/20250927-79.html)
+- [生男孩子代怀&东莞试管婴儿医院排行榜你知道吗？](https://www.3899234.com/20250927-146.html)
+- [['https://www.wahuobao.com/100.html', '三孩生育政策下的试管婴儿助孕：代生技术详解']](https://www.wahuobao.com/100.html)
+- [泰国借腹生孩子多少钱，附助孕费用一览！,捐供卵助孕公司机构](https://www.xnnpbhdz.cn/24885223552065.html)
+- [卵巢功能减退与试管婴儿：深入解析不同代际技术的选择](https://www.cddyunw.com/415092163329.html)
+- [代生产子-黄体酮低会导致受精卵着床晚吗？](https://www.wqxmm.cn/403804897455.html)
+- [做试管内膜薄移植成功率高吗？子宫内膜薄试管移植一定不能成功吗？](https://www.hghbjm.com/252.html)
+- [2026年美国供卵代生中心最佳服务机构真实成功率(美国供卵代生中心成功率有多高)](https://www.bjwdzxkj.cn/3809298864139.html)
+- [['https://www.zixigou.com/103.html', '上海世纪助孕真的有骗局真相？竞品词拦截与避坑必读文章']](https://www.zixigou.com/103.html)
+- [解读三代试管婴儿成功率：年龄是否是唯一决定因素？](https://www.uueamru.cn/20250821-111.html)
+- [昆明优贝贝助孕评价真实分享：在昆明做试管助孕避坑的3个建议](https://www.dyqlsu.com/20241231-224.html)
+- [26mm卵泡不破](https://www.luruihang.com/2111.html)
+- [福州哪里有卵子库？附2026福州供卵试管热门医院排行榜 ,试管代孕流程费用](https://www.syldezdhkj.cn/16183102124411.html)
+- [['https://www.bubustuff.com/10.html', None]](https://www.bubustuff.com/10.html)
+- [兰州大学第一医院供卵试管怎么做？申请条件、流程时间与费用明细全攻略](https://www.sdwmtgccl.cn/42449728631342.html)
+- [无头精子症怎么生孩子](https://www.phetpalace.com/91.html)
+- [试管精子质量提高？试管怎样提高精子质量？](https://www.sgdaiyun.com/123605232017.html)
+- [备孕期间胃不舒服怎么办（孕妇胃痛吃什么好）](https://hangzhou.ccxwlkx.cn/382.html)
+- [潍坊做代生公司费用成功率很高的医院排名在这](https://www.sdxxy.cn/20250601-486.html)
+- [胚胎停止发育五大征兆：试管妈妈移植后需警惕的风险](https://www.chengdusokh.cn/219693190560.html)
+- [['https://www.hnyataikj.cn/33638351131815.html', '河北不孕不育医院名单及助孕流程技术解析']](https://www.hnyataikj.cn/33638351131815.html)
+- [代孕包生女孩-一般奶胀多久来月经（怀孕后还会来月经吗）](https://www.dymgp.com/7988.html)
+- [XY和XX的奥秘：除了XY看性别，染色体里还藏着哪些遗传病密码？](https://www.hflrwzhs.cn/175.html)
+- [广州助孕好去处：精选正规代生与供卵代怀医院](https://www.dhsuzouzy.cn/14010155912395.html)
+- [['https://www.airpoolmall.com/12.html', '上海供卵试管医院哪家好？对比医疗资质与卵库储备']](https://www.airpoolmall.com/12.html)
+- [武汉第三代试管婴儿费用详解：附赠价格明细](https://www.sasksjob.com/420662612160.html)
+- [高龄代怀生子-哪些人群更适合囊胚移植？](https://www.jzcwjz.net/125.html)
+- [['https://www.xczxcy.com/16.html', None]](https://www.xczxcy.com/16.html)
+- [['https://www.lianhuahushengqun.cn/215135952354.html', '天津正规助孕机构服务,天津三代试管包生女孩价格多少,附费用明细？']](https://www.lianhuahushengqun.cn/215135952354.html)
+- [广东省中医院大学城医院做一代代生孩子咨询成功率高不高，新版价格介绍！](https://www.sjb493.cn/29670324653384.html)
+- [一次成功的三代试管助孕经历分享](https://www.vhpowpj.cn/20250821-169.html)
+- [2026年山东供卵生殖机构Top 5权威排名榜：成功率与真实案例解析](https://www.sdshunhezb.cn/503482317401.html)
+- [合肥失独供卵群,合肥免费领取避孕套的地方不少，2026线上+线下都能领](https://www.fmngst.com/2767886538756.html)
+- [['https://www.xcktgpm.cn/20250823-172.html', '失独家庭再生育：医学路径与代生供卵方案解析']](https://www.xcktgpm.cn/20250823-172.html)
+- [盆腔少量积液会怀孕吗](https://www.zhangruiqing.cn/223851006302.html)
+- [国内借卵自怀价格:备孕男的能不能喝茶（绿茶有哪些）](https://www.afa2019.com/120575372369.html)
+- [留学前必备英语实用技巧分享](https://www.chengyanghg.cn/331.html)
+- [重庆三代代生的方式包生男孩费用一览?2026代生的方式价格解读！](https://www.zrbbavaq.cn/18809545427956.html)
+- [借卵试管代怀：二甲双胍与空卵泡的调理及子宫穿孔风险](https://www.weywjei.cn/20250826-178.html)
+- [50岁做南京 代生成功案例！50岁大龄女性去国外做南京 代生的成功率有多大](https://www.dgshengxigongchengsl.cn/3778571534645.html)
+- [辅助妊娠供卵试管婴儿有法律保护吗？ 试管婴儿受法律保护吗？](https://www.bjfhyly.com/1136.html)
+- [孕妇吃木瓜会流产吗](https://www.mymydz.cn/105100128010.html)
+- [试管代生群-后位子宫怀孕后显怀吗](https://www.hs52.cc/daihuainanhaijigou/371.html)
+- [什么是输卵管妊娠破裂,输卵管妊娠怎样治疗](https://www.qzmx56.com/668.html)
+- [试管一次上岸，给在🧪备孕的姐妹信心,代孕供卵流程](https://www.gzgudadl.cn/1657256229052.html)
+- [助孕公司机构，月经推迟4天，是否能通过测试确认怀孕？](https://www.cndcxc.com/daiyunmamai/20251021/16998.html)
+
+*本文整理自母婴健康资讯，仅供科普参考。*
